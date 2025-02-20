@@ -43,4 +43,4 @@
 
 ---
 
-⭐️ ¡Gracias por visitar mi perfil! Siempre estoy aprendiendo y construyendo cosas nuevas. 🚀  
+⭐️ ¡Gracias por visitar mi perfil! Siempre estoy aprendiendo y construyendo cosas nuevas. 🚀
